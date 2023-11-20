@@ -1,0 +1,1 @@
+# ru-philosophy-and-ethics-for-computing-scientists-23-24
